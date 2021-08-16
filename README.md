@@ -16,7 +16,7 @@
 - Master Python and C++
 - Get a 3.9 this semester
 - Travel to a new country
-  -make a vlog 
+  > make a travel vlog 
 - Read 50 books
 - Give my A1 Spanish Exam
 >*This is it for now. Adios amigo!👋* 
