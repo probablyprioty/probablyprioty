@@ -1,4 +1,4 @@
- # HOLA!! 👋 I am Prioty!💁‍♀️.
+ # HOLA!! 👋 I am Prioty!💁‍♀️
 
 - 👀 I love taking part in challenges
 - 🌱 I’m a **Computer Science God** in the making 😉
