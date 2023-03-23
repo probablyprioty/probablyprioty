@@ -12,11 +12,10 @@
 - I am ambidextrous. I can use both my left and right hand equally 👀
 - :briefcase: I post book reviews on IG @priotyinpages
 
-### Goals of 2021
+### Goals of 2023
 - Master Python and C++
 - Get a 3.9 this semester
 - Travel to a new country
-  > make a travel vlog 
 - Read 50 books
 - Give my A1 Spanish Exam
 >*This is it for now. Adios amigo!👋* 
